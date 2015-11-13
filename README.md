@@ -1,2 +1,0 @@
-# yestoocoockies
-popup killer
